@@ -1,2 +1,2 @@
-# hanzalid.github.io
+# hanzalid
 > nye
